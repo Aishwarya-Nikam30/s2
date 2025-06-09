@@ -50,6 +50,6 @@ S3_Static_Website_Hosting/ <br>
 ## 📬 Contact
 
 For any queries, reach me at:  
-📧 *mukundpatil2001@gmail.com*
+📧 *aishwarya.nikam3009@gmail.com*
 
 ---
